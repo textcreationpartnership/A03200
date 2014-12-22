@@ -32,9 +32,12 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Body#####
-A pleasant new ballad you here may behold, how the devill, though subtle, was guld by a scold To the
+GIve eare, my loving Countrey-men,that ſtill deſire newes,Nor paſſe not while you heare it ſung,or a
+1. The ſecond part, To the ſame tune.
+
 #####Back#####
-A pleasant new ballad you here may behold, how the devill, though subtle, was guld by a scold To the
+Printed at London for Henry Goſſon dwelling upon London-Bridge
+neare to the Gate.
 **Types of content**
 
   * There are 152 **verse** lines!
